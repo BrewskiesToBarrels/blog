@@ -1,24 +1,15 @@
 ---
 title: The Start Of My Journey
-date: "2021-03-04T23:46:37.121Z"
+date: "2021-03-11T23:46:37.121Z"
 description: "The Beginning of it all..."
 ---
 
-Let me begin: Welcome to my first blog post. I wanted to start off simple, with explaining what whisky is, and how I got into the whisky “game”
+Welcome to the first ever blogpost. You're here at the ground level, meaning you're either a really good friend, or an absolute weirdo; either way, welcome!
 
-I want to preface this video by explaining that I will not be going excessively in depth in the first few videos, I want to keep these surface level so that anyone can understand them, including people who have never really delved into the world of spirits
+The idea behind **Brewskies to Barrels** is to teach young people about fine spirits, because there is a whole world you're overlooking when you're crushing white claws and doing keg stands. Like most things in my life, I got slightly interested in a topic, and I completely exaggerated and learned every detail I could find. The idea is in the name, I want to forcefully evolve our generation from the "brewskie" crushing idiots we are, to the slightly finer, whisk(e)y drinking morons we have the potential to be.
 
-I'll start off with myself: I had a pretty typical start to drinking, my preferred method of inebriation was to take shots, followed by some form of chase to completely wipe away any form of alcohol flavour. I hope my parents aren't watching this, but many of these behaviours were solidified on my trip to Europe with one of my best friends ethan.  
+The idea with this blog is to simply post about higher end liquors, which seem to have been my interest in the past year (don't judge, quarantine's been rough). I will focus mostly on whisk(e)y (bet you didn't know there's multiple ways of spelling it), but will diverge into different alcoholic beverages when I feel is right. The first few posts will be quite surface level, as I think most people reading this have minimal to no experience with high end beverages, which is totally fine, I just want to provide people with the basic knowledge so that the next time you go out to a fancy dinner, you're able to look like you actually know what the fuck you're talking about (trust me, even the dumbest terms can impress people). 
 
-I actually remember the first time we drank on our trip. We did a tour with a company called contiki. We were meeting the group in London to start the trip, so we showed up a few days early to explore London. The first day we just walked all around the city, exploring, at the end of the day we decided to end our day with our first “independent” beers, so we decided to hit a Tesco’s, and got a few beers. 
+I think this blog will serve as a good starting point for your journey, keep an open mind, try to listen to my long-winded, potentially boring stories, and it might serve you well in the long run. I hope that you enjoy what I write!
 
-We decided to have the beers in our hotel room. I remember the feeling of cracking those crappy, excessively large domestic beer bottles in our small hotel room, with the tiny tv playing a random show, and just feeling the most amazing feeling ever, here I am with my best friend in a country I've never been to, I guess this is what it feels like to be an adult I told myself. Fast forward to BEaujolais, a region in the middle of France. 
-
-This is where we had our first taste of real alcohol, I guess I should mention that this trip was a camping trip; there were no hotel rooms other than two stops during the entire 2 months we were travelling, pretty much every night we slept in tents. Just like every prior night, we got to the campsite in Beaujolais, set up our tent, and hit up the grocery store with our friends Mark, Ryan and Devin to see what we could get to drink or eat. This is where we found the bottle to start it all, a bottle of canadian whisky that i'm pretty sure is not sold anywhere in Canada, mostly because it's a disgrace to the name. We drank it and passed out. 
-
-I'll end this story now, because I don't want this to be a story video, but this trip showed me all forms of liquors. This bad relationship with alcohol carried on, where I really only consumed it for the effects. This slowly changed throughout  the years, and this was thanks to Ethan
-
-I'm not sure if you've gotten this already from what I've said, but calling Ethan classy for his age is an understatement. Ethan got into higher end liquors quite early, I’d say pretty much when we became legal to drink here in Canada. He started experimenting with different glasses to drink from, and different high end liquors such as tequilas, whiskies, and rums. 
-
-We had nights where he would make me cocktails, had me drink whisky, but I never really got the taste for it. 
 
