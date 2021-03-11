@@ -1,6 +1,6 @@
 ---
 title: The Start Of My Journey
-date: "2021-03-04T23:46:37.121Z"
+date: "2021-03-11T23:46:37.121Z"
 description: "Now, My Beginnings"
 ---
 Now that I've given you guys the bullshit intro, here's my real origin story: I didn't really drink until I was 18. **BE CAREFUL, THE FOLLOWING STORY MIGHT BE BORING**

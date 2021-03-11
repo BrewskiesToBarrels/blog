@@ -1,6 +1,6 @@
 ---
 title: The Start Of My Journey
-date: "2021-03-11T23:46:37.121Z"
+date: "2021-03-10T23:46:37.121Z"
 description: "The Beginning of it all..."
 ---
 
