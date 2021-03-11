@@ -1,5 +1,5 @@
 ---
-title: The Start Of My Journey
+title: My First Taste of Alcohol
 date: "2021-03-11T23:46:37.121Z"
 description: "Now, My Beginnings"
 ---
