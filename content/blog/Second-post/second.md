@@ -3,7 +3,7 @@ title: My First Taste of Alcohol
 date: "2021-03-11T23:46:37.121Z"
 description: "Now, My Beginnings"
 ---
-Now that I've given you guys the bullshit intro, here's my real origin story: I didn't really drink until I was 18. **BE CAREFUL, THE FOLLOWING STORY MIGHT BE BORING**
+<!-- Now that I've given you guys the bullshit intro, here's my real origin story: I didn't really drink until I was 18. **BE CAREFUL, THE FOLLOWING STORY MIGHT BE BORING**
 
 I know this is unheard of, but all through highschool I didn't drink, I stuck to my pre-calc homework. All of this changed when I went on a trip with my best friend Ethan to Europe. We went on a "tour" with a company called Contiki, at the the time the tour was called the "Original", which I believe has now been discontinued; it include 46 days of camping in tents, visiting a total of 22 countries. Ethan and I took a flight from good ol' YVR to the Detroit Airport, saying goodbye to our parents who were probably scared to death letting a 17 and 18 year old go alone to Europe on a 2 month trip. From Detroit, we went to Gatwick Airport, where we arrived with our suitcases, and a map to our hotel. 
 
@@ -17,5 +17,5 @@ After that night, I quickly went and bought myself a bottle of the Balvenie 14, 
 
 I think the final take-away from this story is that no matter how "low-class" or "trashy" your initial relationship with liquor is, its never too late to explore the beautiful world that exists behind the cheap beer and Smirnoff. I have a **100%** success rate at converting people into scotch drinkers, and I don't plan on ruining that success rate. 
 
-This is really the background I planned on putting out there in case people cared, and I think its important to show that I was no different to the typical Joe, I just decided to try out scotch, and ended up seeing how beautiful the world of whisk(e)y can be. I hope to continue these blog posts, and further explain the world of whisk(e)y to you guys.
+This is really the background I planned on putting out there in case people cared, and I think its important to show that I was no different to the typical Joe, I just decided to try out scotch, and ended up seeing how beautiful the world of whisk(e)y can be. I hope to continue these blog posts, and further explain the world of whisk(e)y to you guys. -->
 
